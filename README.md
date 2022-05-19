@@ -1,2 +1,2 @@
-# Academic_Credentials
+# Academic Credentials
 
